@@ -3,7 +3,6 @@
 ![REVERTING YOU BACK](https://github.com/hannahzkie/hannahzkie/assets/69773935/1c501a37-423a-4124-a857-9cedc63aff6d)
 
 ### ABOUT THE BOOK 
-
 Florentina Aurkena Congson Yao, the girl who has the title of the "cold girl", would never acknowledge any man who tried to court her, not unless Reid came into her life. He was there and tried his best to make Kena smile again. After a traumatic event happened to Kena and she had a hard time moving on from it, Reid was there to help her heal.
 
 ### ABOUT THE CHARACTER
